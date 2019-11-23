@@ -1,7 +1,8 @@
 
 
-朋友影城- Technical-support
+有为电影- Technical-support
 
 你对本app有任何疑问，请联系我们。
 
-邮箱：broderickii31aa@gmail.com
+邮箱：xionglue426@163.com
+
